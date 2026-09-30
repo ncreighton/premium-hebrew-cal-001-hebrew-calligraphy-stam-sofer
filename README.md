@@ -1,0 +1,2 @@
+# premium-hebrew-cal-001-hebrew-calligraphy-stam-sofer
+Tired of practicing STAM letters without a clear system to track your progress or ensure halachic precision? This Notion planner turns your scattered drills into a structured, sacred practice routine.  The Hebrew Calligraphy STAM Sofer Practice Planner organizes your practice by letter groups, tracks your speed and accuracy, and embeds halachic ref
